@@ -1,2 +1,1 @@
-"# Proyecto-GS-Version-Mayo" 
-"# Proyecto-GS-Version-Mayo" 
+https://yagocenturion10.github.io/Proyecto-GS-Version-Mayo/
